@@ -1,0 +1,1 @@
+# uhostel.chitkarauniversity.edu.in-Gatepass
